@@ -22,5 +22,3 @@ Junte o frango temperado até que esteja dourado.
 Adicione os cogumelos, o ketchup e a mostarda.
 
 Incorpore o creme de leite e retire do fogo antes de ferver.
-
-Sirva com arroz branco e batata palha.
